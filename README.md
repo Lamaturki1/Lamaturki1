@@ -7,4 +7,4 @@
 
 - 📫 How to reach me: Lamaturki.2001@gmail.com.
 
--✨ DON'T STOP UNTIL YOU'RE PROUD.
+  ✨ DON'T STOP UNTIL YOU'RE PROUD.
